@@ -1,1 +1,0 @@
-# ikhanina.github.io
